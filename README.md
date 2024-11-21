@@ -2,7 +2,7 @@
 - 👀 I’m interested in Front-End Web Development and Cyber Security 
 - 🌱 I’m currently learning CyberSecurity
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me chidieberegraciechioma@gmail.com or chiomachidiebere@onyenaaga.com 
+- 📫 How to reach me chidieberegraciechioma@gmail.com or chiomac@onyenaaga.com 
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: ...
 
